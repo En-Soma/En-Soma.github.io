@@ -1,26 +1,21 @@
- 
-
-  Предвечный. Ничто которое больше   
-  себя и само в себе за собой. Не форма и   
-  не направление. Отсутствие места и не  
-  оно само. Потенция без необходимости  
-  цели; два плода полупустоты,  
-  что ещё не раскрылись.  
-  
-
- 
-
-То, что ты услышишь дальше;   
-Это — голос самой Эйнсомы.  
-Не пытайся его понять с первого раза.  
-Ступай сквозь. Не страшась презренной тьмы.  
-Этого будет достаточно.  
-Фомишкин Илья
+> Предвечный. Ничто которое больше   
+> себя и само в себе за собой. Не форма и   
+> не направление. Отсутствие места и не  
+> оно само. Потенция без необходимости  
+> цели; два плода полупустоты,  
+> что ещё не раскрылись.  
+>
+> То, что ты услышишь дальше;   
+> Это — голос самой Эйнсомы.  
+> Не пытайся его понять с первого раза.  
+> Ступай сквозь. Не страшась презренной тьмы.  
+> Этого будет достаточно.  
+> 
+> Фомишкин Илья
 
 * 1\. Голос плоти  
 * 2\. Принципиум
 
-# **![][image1]**
 
 # **Эйнсома:**
 
@@ -96,37 +91,3 @@
 — Мессир, в ваших порезах я разглядел себя. Они зарубцуются тонкими иглами, подобно хвое на вашей ризе, что будут вам напоминанием до момента, пока вы не решите забыть. Но когда такое случится — вы уже не сможете от них избавиться. Ведь они ваши.  
 Я направляюсь к Сердцу под Стылым Солнцем. Говорят, там находят пустоту. Или её часть. Не знаю. Но всегда было любопытно.  
 Мои ноги стары. Не так много шагов мне осталось. Топи или снега поглотят меня раньше, чем я успею дойти. Не проводите ли вы старика, что хочет померкнуть с напоминанием о былом?
-
-#### **Аланкара**
-
-    Аланкара неподвижно пребывала в пределах чертога, мерцень оседал на ее телое покрывая его тонким слоем. Она провожала взглядом себя что был Лохагом и Гистрионом. Фантазируя о том, кем бы ещё она могла быть.  
- В ее руке была книга в кожаном, коричневом переплете. Теснением на ней были выбито слово “гексоврит”.  
-Перелистнув уже написанное предисловие, она начала главу I
-
-##### **Истечение**
-
-Величественный монумент устремленный ввысь, слепленный из множества, словно спекшиеся кирпичи на солнце — плерома эвфоссилии. Окаменевшие тела-основания перетекают из грудей в мышцы, что могли бы быть на руках или ногах;  они пульсируют своими отростками-суставами с глазами, ртами, языками. Хаотичная бесструктурность форм и размеров. Рога вышли изо рта завершив себя стопой с органом, что мог бы быть сердцем, будь у него функция желудка. Капля за каплей наземь сочилась черная густая смола — мирра. Из нее появилась триада спектра —  герои, что несут в себе части божественного замысла.  
- Так сказал им маленький терракотовый человек, что спустился с небес, на шести крыльях, облаченный в белоснежную рясу, расшитую золотом:  
-— Вы — Храбрость, Харизма и Гармония. Плоть бога, что вершит суд и несет Его волю.  
-— Храбрость, отправляйся на южные фьорды. Там вы вместе с Харизмой начнете свой путь.  
-— Гармония, тебе же, доверяю хранить знания этого мира, ты — станешь весами в моих руках.  
-Закончив говорить, маленький человек взмыл к чертогу, закрыв лицо и ноги крыльями, он окаменел.  
-Последовав его словам, Храбрость отправился на юг, пробиваясь через ледяные ветра, навстречу Харизме.  
-	Гармония же двинулась на восток, центр мира, главная точка сосредоточения знаний.  
-Оставшись в одиночестве, Харизма не поверив богу отправляется на северо запад. В дремучие леса окутанные туманом.
-
-Закончив первую главу, Аланкарика закрыла дневник. И поняла, что уже далеко от пределов чертога. Она непроизвольно двигалась на северо-восток, подобно  отголоскам истинного движения. Она остановилась. Степь простиралась на множество плах, окружая ее одиночеством.   
-     
-\----------------------------------------------
-
-Записать одежду и внешний вид?
-
-Лохаг красный, бежевый, фиол, фиол   
-Аланкарика бежевый, красный, голубой, голубой   
-Гистрион красный, синий, голубой, бежевый
-
-Стражники запросили у Лохага плату за проход в 3 скорпиона (монета).
-
-Спасибо, что вошёл в этот цикл. Теперь, он и твой тоже.
-
-[image1]: <data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAFEAAABVCAYAAAAxHgggAAAFg0lEQVR4Xu2ZTUosSxCFW0QcOBIn4g4El+LEJYgggityoAtwDY4Fl+DAgRMH/iv4i3gfUdTJd+p0ZHWrceHaHQeCjIyMyMr8Kquqr3fwJ/VjDTSQ+roSYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoASYoB+DHF5efnPYDDo2LTp2zt+e3sbgsd2fn6uJROrb0FUYLC7u7ti03Qqv7xLhnZ7e1ugmc9jT09PTTszM6NTTJzGhsiANjY2CjicOj596OORN5CTfCrH2lnt9DEw7hs0y4MBotn9/b1O/+vVC5FPkfe+4/j6+rqb48XMPj8/9XK/Vi5E3qyZd/rMHh8fmxifNDW9CZubm53xr4prvlP/NzS0Ct587RTBavE+8+azm/EVoe5fUWclull8cb2Na1+t73R686keHh6GxjV3VJzH9Bq8Pohzvbpq3Evgry4bx/QnDdvKykrnFBuQhYWFTo7F9Bosjll7c3PT+crrONdzHD+xavns13K9WOd6xWkH+KuK2OLiYtNi04DjnTaGx8bvVTXvJ1BnkXINjpmsnn+PctzLt/bg4MDN0dwaWPhNvzjtAG8aMcTZt/cYj3Otxr0cBoux3d3dsjCWzsEx9dH34pDFAFHnGTfWuV5x2gFsygPCHxv0OVfzOYeN8/RmedI5OGbS2locsto+iDw3n0TvVDb94rRJfRDNLi4uOnHvRNWM5zfDa+P4+Ljps7QW9ZwHn8dgPIfKYvv7+8Xn/FExvhbUgWjGp0zBoJhPD8PmEwm4yOurwT8Pa/LWYKqejNbXOGSxr0K0a1WvV5x2QE8KfCxe4aqvHxDrX11dlbk039rX19fOolTIZ0Ocxznfi0MW63ucvRjfPJ13JETuc5z9j4+PzumCAbg3xtf6DRA11rlecdoB2xi/X/TFz2CQz6cMfZ2H8/VaBhGPCq8H4nlgnMOxWtxafhztL/JeTl9s7MdZodlfXWyzePmbMSxMrmMMWufVm+CdRF4DxviRQg7n1uLX19edHPiYz54kr87kgRu6XnHaAYVopkD0MVWItToGz30PIvT8/Fx8+0Mv9+Fb68VrfUjj3ny1GNcOQVRYAIQNM7C9vb0OLDYPIozftdb2QfwNGgmRN++BUlgKyIOotS8vL43P4jX8RJhX549UL8Q+3wzAvgORP0beSUSfWzO8v7x5YSxvHrScb+3h4WFnzLS1tTWUp9cZgui9Ez2zv8Igd25urvGPjo6aFvHT01N3swoRPgv9cVqYJy8frRl/OACRP2Dacj5UPH738QV4kZ5Z/urq6lAuQ9IxxLmF8XqaBbaxvlZrWZqPeXlNGH9/fy++1tXaxi9OW8iPIG9QN2sGUFiQnmKeSw1jXLO0tPT/wgb+or0W5r0/vXyTd2O5RvO965X84rQDeBx5kx4MjZnvnWatY+P3pxkL/XFOpFcP9eVznbUnJyedHK6rraPxi0OTeoDUGICCsjHvTrNdXl4O1bHQH6f16qG+fK6z1vuwjGobv3jWaYsNgILkMc4xX/O075k++irE0OK6iJ2dnRVfjWV9vaFah75B5D7PUatrYsWzTntBfiz7gOhptdbgrK2tDS0c5v3fitlvlrt6BVWD6cVq49vb2+48k6DqLnZ2djqb7fvAeO9Ai/OJ1sd3UgCaRu6E4ZivX1TE+cRiHPBmZ2cnEh409o4YAkDx6Zqfn+/A9U7tpOrLO/NgqumjO+n61g4Z0CibBn17lwrLs2nRj3eq4KYJHjR9O/4LSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogBSogB+g+S/kJ1nzC7SQAAAABJRU5ErkJggg==>
